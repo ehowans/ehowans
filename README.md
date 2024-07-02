@@ -1,0 +1,3 @@
+- 👋 Hi, I’m Elisa!
+- 📫 How to reach me: ehowans@clemson.edu
+- 😄 Pronouns: they/them
